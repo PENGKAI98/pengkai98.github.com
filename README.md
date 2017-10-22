@@ -1,1 +1,1 @@
-# Hope you can find a boy who loves you like to love himself
+# 人还是不要太聪明比较好，你看我，知道那么多没用的事情，让自己伤心。
